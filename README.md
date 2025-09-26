@@ -1,3 +1,5 @@
 ### Hmmm...
 
-Give me some time to think about what to write...
+Milvoid here, an undergraduate student of SJTU.
+
+Visit `milvoid.com` or `journal.milvoid.com` for more info about me XD
